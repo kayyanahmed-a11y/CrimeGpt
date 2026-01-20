@@ -11,3 +11,6 @@
         FOR HACKING AND CYBER SECURITY USE...
 ------------------------------------------------
 # BETTER THAN WORM-GPT. CRIME GPT😈
+![Untitled design](https://github.com/user-attachments/assets/268bbb0e-d85b-4e69-9e54-05790808d772)
+-----------------------------------------------
+
